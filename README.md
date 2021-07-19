@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ValeryScarface.github.io/rsschool-cv/cv
